@@ -1,0 +1,21 @@
+{
+  "title": "Songs of the Savanna",
+  "subtitle": "A Novel",
+  "genre": "Literary coming-of-age",
+  "author": "Walusimbi Leon",
+  "description": "A twelve-year-old girl in a rural village learns the old songs from her grandmother, and through them inherits a history the schoolbooks erased.",
+  "style": "Warm, lyrical third-person, child's-eye clarity sharpening with age. Oral-story cadence woven into prose.",
+  "characters": "Nankya \u2014 12, curious, listening; Grandmother Naava \u2014 keeper of songs, patient, iron-willed.",
+  "setting": "A village at the edge of the savanna, late 1990s.",
+  "notes": "Open at dawn with Naava singing while grinding millet. Let the songs carry history. Keep the child's wonder front and center.",
+  "chapterTitle": "Chapter",
+  "mdFiles": [
+    "v2.0/book.md"
+  ],
+  "htmlFiles": [
+    "v2.0/book.html"
+  ],
+  "indexInject": null,
+  "mdHeadingLevel": 3,
+  "targetWords": 2000
+}
