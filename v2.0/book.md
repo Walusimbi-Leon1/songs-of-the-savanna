@@ -232,6 +232,101 @@ When Nankya stopped, breathless, Naava nodded. "That is a good song," she said. 
 
 Nankya looked at her hands, dusted with millet flour, and then at the sky. The sun was rising, and the world was singing, and she was part of it. She was only just beginning to understand what that meant.
 
+### Chapter 4 — The Song of the Long Water
+
+The next morning came the way mornings come in the dry season: not slowly, but all at once, as if the sun had been waiting impatiently behind the horizon and finally decided to push through. Nankya was already awake when the first light touched the thatch of the roof. She had slept badly, dreaming of water — great sheets of it, silver and unbroken, stretching to the edge of everything.
+
+She found Naava at the grinding stone, as she always was, her body moving in the old rhythm. But this morning, there was something different in the air. A stillness. A waiting.
+
+"Sit," Naava said, without turning around.
+
+Nankya sat. The ground was cool beneath her, the dew still heavy on the grass. She watched her grandmother's back, the way it bent and straightened, the way her arms moved in their patient circle. She had seen this motion a thousand times, had imitated it as a small child with a pebble and a flat stone, pretending to grind, pretending to be Naava. But today she saw it differently. Today she saw it as the beginning of something.
+
+Naava finished her work. She scooped the flour into a clay bowl, set it aside, and wiped her hands on her apron. Then she turned and looked at Nankya with an expression the girl had never seen before — not stern, not soft, but something in between. Weighing. Measuring.
+
+"The song of the long water," Naava said, "is not one song. It is many songs, woven together like the reeds of a basket. Each verse is a strand. Each verse is a day. Each verse is a woman who walked before you and left her footprints in the song."
+
+She sat down across from Nankya, her legs folded beneath her, her hands resting on her knees. The sun was fully up now, and the light fell across her face, illuminating the deep lines around her eyes and mouth. She looked ancient. She looked like the beginning of the world.
+
+"In the beginning," Naava said, "there was no lake. There was only the dry ground, and the dry grass, and the dry sky. The rivers had forgotten their way. The rains had forgotten to come. The animals had forgotten where the water was, and so they wandered, and so they died."
+
+Nankya leaned forward. She had heard stories of the dry times before, but never like this. Never with this weight in her grandmother's voice.
+
+"The people gathered at the edge of the savanna," Naava continued. "They were many, but they were weak. Their children were thirsty. Their old ones were dying. They looked at the sky, and the sky was empty. They looked at the ground, and the ground was cracked. They had no songs for this. Their songs had been about rain, about rivers, about plenty. But those songs had dried up too."
+
+She paused, and in the pause, Nankya could hear the birds, the insects, the small sounds of the world going about its business.
+
+"One girl did not sit with the others. She walked. She walked away from the people, away from the cracking ground, away from the dying animals. She walked until she was alone, and then she walked some more. Her name was Nalwoga."
+
+"Nalwoga," Nankya repeated. The name felt strange in her mouth, heavy as a stone.
+
+"Nalwoga," Naava confirmed. "And as she walked, she did not sing. She had no song. She had only thirst, and grief, and a small, stubborn hope that if she walked far enough, she would find something. She walked for three days. On the third day, her legs gave out, and she fell."
+
+Naava's voice dropped, almost to a whisper.
+
+"She lay on the ground and looked up at the sky. And the sky spoke to her. Not in words, but in a feeling. A feeling like a hand pressing down on her chest, saying, *Get up. You are not finished.* And she got up. And she began to walk again. But this time, she did not walk in silence. She opened her mouth, and a sound came out. Not a word. Not a melody. Just a sound. A vibration. A hum."
+
+Nankya felt the hair on her arms stand up. She knew that hum. She had felt it in her own chest the morning before, rising unbidden, finding its way out of her.
+
+"The hum grew," Naava said. "It found shape. It found rhythm. It found words. And the words were not words she had been taught. They were words that had been waiting in the dry ground, in the dry air, in the dry bones of her ancestors. They were words that had been there all along, sleeping."
+
+Naava began to sing. Her voice was low, rough as bark, but it carried a melody that seemed older than the earth itself. The words were in a language Nankya did not fully understand — the old language, the one the teachers called dead, the one the schoolbooks said had never existed — and yet she understood. She understood with her chest, with her belly, with the roots of her hair.
+
+*Nalwoga, Nalwoga, child of the dry ground,*
+*Open your mouth and let the water sound.*
+*The rivers are sleeping, the rains are far,*
+*But the song in your blood knows where they are.*
+
+Naava stopped. The silence that followed was deeper than silence. It was the silence of the world listening.
+
+"She sang that verse, and the ground trembled. She sang it again, and the ground cracked. She sang it a third time, and from the crack came water. Not a trickle. Not a stream. A flood. A great, surging wall of water, rising from the earth, spreading across the savanna, filling the low places, carving new paths, making the lake where no lake had been."
+
+Nankya's breath caught. "The lake was made from a song?"
+
+"The lake was made from a song," Naava said. "But not just the song. The song was the key. The water was already there, sleeping beneath the ground, waiting. All living things are made of water, child. The ground remembers. The ground keeps what it is given. Nalwoga's song was not creating something new. It was calling something home."
+
+The fire crackled between them. A chicken scratched in the dirt. The world continued, ordinary and unchanged, and yet nothing would ever be ordinary again.
+
+"How do you know?" Nankya asked. Her voice was small. "How do you know it was her? How do you know it happened?"
+
+Naava looked at her for a long moment. Then she stood, and walked to the edge of the compound, and pointed at the horizon. In the distance, shimmering with heat, was the lake. It was a long walk from the village, farther than Nankya had ever gone alone, but she had been there. She had seen it.
+
+"Walk there," Naava said. "Put your hand in the water. Taste it. Feel it move against your skin. Then ask me again how I know."
+
+Nankya stood and joined her grandmother at the edge of the compound. The lake was a silver line in the distance, barely visible through the heat haze. It seemed impossibly far. It seemed impossibly real.
+
+"When will you teach me the song?" she asked.
+
+"I will teach you today," Naava said. "Not the whole song — that would take a lifetime, and you are only twelve. But I will teach you the first verse. The verse that woke the water. And you will learn it, and you will carry it, and when you are ready, you will sing it."
+
+"What if I'm not ready?"
+
+Naava turned to look at her. Her eyes were bright, sharp, alive.
+
+"You were born ready," she said. "You just don't know it yet."
+
+She knelt in the dirt and smoothed a patch of ground with her palm. Then she picked up a stick and began to draw in the earth. Nankya watched as lines appeared — not letters, not numbers, but shapes. Spirals. Curves. A pattern that seemed to move even as it lay still.
+
+"This is the shape of the song," Naava said. "Each curve is a breath. Each spiral is a word. The song is not just sound, child. It is shape. It is movement. It is the way the water moves, and the way the wind moves, and the way your own blood moves in your veins. To sing the song of the long water, you must become the water."
+
+Nankya knelt beside her and studied the pattern. It was simple, and it was not simple. It was a spiral within a spiral, a curve within a curve, and at the center of it all, a single point.
+
+"What is that?" she asked, pointing.
+
+"That," Naava said, "is you. The song begins with you. It always begins with the one who sings it. Nalwoga did not sing to the water. She sang to herself, and the water heard her, and it came."
+
+The sun was higher now, and the heat was beginning to press down on them. The village was waking around them — doors creaking, voices calling, the low murmur of the day beginning. But Nankya and Naava were in their own world, a world drawn in the dirt, a world of spirals and songs and water that remembered.
+
+"Close your eyes," Naava said.
+
+Nankya closed her eyes.
+
+"Breathe. Feel the air in your lungs. Feel the ground beneath your knees. Feel the heat of the sun on your skin. Feel everything, because everything is part of the song."
+
+Nankya breathed. The air was warm and smelled of dust and cooking fires. The ground was hard beneath her knees. The sun pressed against her closed eyelids, red and bright. She felt it all, and as she felt it, something began to stir in her chest. A hum. A vibration. The same hum she had felt the morning before, but stronger now. More insistent.
+
+"Now open your mouth," Naava said. "And sing."
+
 ---
 
 ## About This Book
