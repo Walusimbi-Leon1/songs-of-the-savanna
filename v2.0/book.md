@@ -449,6 +449,134 @@ But it was there. She could feel it, the way you can feel a storm coming even be
 
 She fell asleep with her hand over her heart, feeling the hum of the song beneath her skin, and she dreamed of water.
 
+### Chapter 6 — The Verse That Wakes the Water
+
+The dream was all water. Not the angry water of storms, but a vast, still water, flat as a mirror, reflecting a sky so wide it had no edges. Nankya stood on the shore and the water stretched out before her, dark and deep and patient, and she knew — the way you know things in dreams — that it was waiting for her. That it had always been waiting for her. That it would wait forever if it had to.
+
+She woke to the sound of Naava's voice. Not singing. Calling.
+
+"Nankya. Wake. The sun is not yet up, but it is thinking about it."
+
+Nankya opened her eyes. The hut was grey with the first light, that thin, uncertain light that comes before dawn, when the world has not yet decided what it wants to be. She sat up. Her body was stiff from sleep, but her mind was sharp, alert, the way it got when something important was about to happen. She could feel the six verses inside her, humming their low, steady hum. And beyond them, beyond the six, the silence where the seventh should be. The silence that waited.
+
+She dressed quickly — a simple dress, cotton, faded blue, and her good sandals that she saved for church. Naava was already outside, standing by the cooking fire with a calabash of water and a bundle wrapped in banana leaves. She had dressed herself in her good cloth, the one with the indigo border that she wore only for ceremonies. Her grey hair was wrapped in a headscarf the color of earth.
+
+"You are ready," Naava said. It was not a question.
+
+Nankya nodded. She took the calabash and drank. The water was cool and tasted of clay. She ate a piece of cassava from the bundle, chewed slowly, and then they set out.
+
+The path to the lake began at the edge of the village, where the last compound ended and the grass began. It was not a real path — not the kind with packed earth and clear borders — but more of a suggestion, a memory of feet that had walked this way before. The grass was tall, silver with dew, and it parted before them like a curtain. The sky above was still dark in the west, but the east was bleeding orange, a thin line of fire along the horizon that was spreading upward, turning the grey to gold.
+
+They walked in silence. Naava led, her steps slow but sure, her back straight, her face turned toward the horizon. Nankya followed, matching her grandmother's pace, feeling the cool air on her skin and the soft earth beneath her sandals. The savanna opened around them — wide and flat and endless, the grass rippling in a wind she could barely feel. Here and there, a tree broke the skyline, an acacia or a mango, its branches black against the brightening sky. A bird called somewhere, high and sweet, and another answered, and then another, until the air was threaded with birdsong.
+
+They walked for a long time. The sun rose. The dew burned off the grass. The heat began to gather, slow and patient, the way it always did. Naava did not speak, and Nankya did not ask her to. There was something about the walking itself that felt like singing — the rhythm of their steps, the rise and fall of the land, the slow wheeling of the sky above them. She felt the verses inside her, moving with her body, swaying like grass in the wind.
+
+After a while, the land began to change. The grass grew shorter. The earth turned darker, richer, the color of wet clay. The air changed too — it grew heavier, thicker, carrying a smell that Nankya had no name for, a smell that was old and deep and alive. The smell of water.
+
+"Grandmother," she said.
+
+"I smell it," Naava said. "We are close."
+
+They crested a low rise, and there it was.
+
+The lake.
+
+It was not what Nankya had expected. She had imagined something small, something she could see across, something with clear edges and a beginning and an end. But this — this was vast. It spread out before them, silver and grey, its surface so still it looked solid, like a sheet of beaten metal. The far shore was invisible, swallowed by distance and haze. The sky reflected in it perfectly, so that it was impossible to tell where the water ended and the air began. It was as if the world had been folded in half, and they were standing at the crease.
+
+Nankya stopped. Her breath caught in her chest. The six verses inside her went suddenly, completely silent, as if they, too, were holding their breath.
+
+"Walk," Naava said gently. "Come. Walk with me."
+
+They descended the rise. The ground was soft now, spongy underfoot, and small pools of water gathered in the depressions, reflecting the sky in miniature. Reeds grew along the edge, tall and green, swaying in a breeze that came off the water. A heron stood in the shallows, motionless, watching them with one bright eye. The smell of water was everywhere — in the air, in the earth, in the grass. Nankya felt it on her skin, a coolness that had nothing to do with temperature.
+
+They reached the shore. The water lay before them, flat and perfect and ancient. Naava set down her bundle and stood, her hands at her sides, her face turned toward the lake. She stood for a long time, and Nankya stood with her, and neither of them spoke.
+
+Then Naava turned to her and said, "Sit."
+
+Nankya sat. The earth was cool and damp beneath her. Naava sat beside her, their shoulders almost touching, and together they looked out over the water.
+
+"This lake," Naava said, her voice low and steady, "was not always here. When your grandfather's grandfather was a boy, this was dry land. Grass and dust and nothing more. The people drank from a well — a deep well, the deepest in the land — and when the well ran dry, they walked three days to the river. Three days each way. Many died on the walk. The children. The old ones. They died of thirst in a land that had forgotten rain."
+
+Nankya listened. The words settled over her like a blanket.
+
+"There was a woman," Naava continued. "She lived at the edge of the village. She was not married. She had no children. She was old, older than anyone could remember, and people said she was mad because she talked to the sky. She would stand at the edge of the compound every evening and sing to the sky, sing to the clouds, sing to the rain that would not come. People laughed at her. They threw stones at her. They told her to be silent."
+
+Naava paused. Her eyes were fixed on the water, but Nankya could see that she was seeing something else — something that was not there anymore, something that existed only in memory and song.
+
+"But she did not stop singing. She sang every night for three years. She sang the songs of her mother, and her mother's mother, and all the mothers back to the beginning. She sang every verse she knew. And when she had sung them all, she sang new ones. Verses that came to her in dreams. Verses that came to her in the middle of the day, when she was cooking or fetching water or sitting in the shade. Verses that came from somewhere deep inside her, from a place she did not know she had."
+
+"The place where my verses come from," Nankya whispered.
+
+Naava looked at her. "Yes," she said. "That place. That is the place. The old people called it the deep. The place where the songs live. The place where the memory of the world is kept. It is in every person, but most people forget it. Most people fill it up with other things — with noise, with hurry, with the things the schoolbooks teach. But the songs are still there. Waiting."
+
+"What happened to the woman?" Nankya asked.
+
+"She sang for three years," Naava said. "And on the last night of the third year, she sang a song that had never been sung before. A song of seven verses. The first six verses she knew — they had been passed down to her, mother to daughter, for longer than anyone could remember. But the seventh verse — the verse that wakes the water — that verse had never been sung. It had never existed. It was waiting to be made. And she made it. She stood at the edge of the compound, and she opened her mouth, and the seventh verse came out of her, and when she finished singing, the ground shook."
+
+Nankya's hands were trembling. She pressed them flat against the earth.
+
+"The ground shook," Naava repeated. "And water came up. From the dry earth, from the dust, water came up. It came up slowly at first — a trickle, a seep, a darkening of the soil. And then faster. A spring. A stream. A flood. The water spread across the dry land and it did not stop. It filled the low places and the hollows and the dry riverbeds, and by morning, where there had been dust, there was this." She swept her hand toward the lake. "This."
+
+They sat in silence. A fish broke the surface of the water — a quick silver flash, gone in an instant — and the ripples spread outward in perfect circles, growing wider and wider until they vanished.
+
+"The schoolbooks," Nankya said. "They don't say anything about this."
+
+"No," Naava said. "They do not. The schoolbooks say the lake was always here. They say it is a natural feature of the landscape, formed by geological processes over thousands of years. They say it in English, in big words that are meant to sound true. But they do not know this lake. They have never stood at its edge and felt the hum of the song beneath the water. They have never heard the seventh verse."
+
+"Why not?" Nankya asked. "Why don't they know?"
+
+Naava was quiet for a long time. When she spoke, her voice was careful, measured, the voice she used when the truth was sharp.
+
+"Because knowing requires listening," she said. "And they have forgotten how to listen. They listen only to themselves. To their own stories. To their own songs. The songs of other people — the songs of this land, of this water, of the people who were here before them — those songs they call myths. Legends. Folklore. They write them down in books, but they do not hear them. They study them the way you study a dead thing, turning them over, pinning them down, taking them apart. But a song is not a dead thing. A song is alive. It changes. It grows. It finds its singer."
+
+She looked at Nankya, and her eyes were bright with something that might have been tears, or might have been the reflection of the water.
+
+"That is why you are here," she said. "That is why the songs chose you. Not because you are special. Not because you are better than anyone else. But because you listened. Because you were quiet enough, and still enough, and open enough to hear them. The songs need a voice, child. They need someone to carry them. Someone who will not forget."
+
+Nankya looked out at the lake. The sun was higher now, the water gleaming, the heat pressing down. She could feel the six verses inside her, steady and sure. And beyond them, the silence. The empty place where the seventh verse should be.
+
+"Grandmother," she said. "I don't have it. The seventh verse. It hasn't come to me."
+
+"I know," Naava said. "It will not come here. It will not come because you want it to. It will come when it is ready."
+
+"But you brought me here. You said we would see what the song has made."
+
+"We have seen it," Naava said. She gestured at the lake, at the water, at the vast silver expanse that stretched to the horizon. "We are seeing it now. The seventh verse made this. The seventh verse called this water up from the earth, and it is still calling it. The song does not end. It is still being sung."
+
+Nankya looked at her grandmother. "Who is singing it now?"
+
+Naava smiled. It was a small smile, barely a curve of the lips, but it transformed her face, made it young, made it luminous.
+
+"The lake is singing it," she said. "The water is the song. Can you not hear it?"
+
+Nankya listened. She listened with her ears, and she heard nothing but the soft lapping of water against the shore, the distant cry of a bird, the whisper of wind through the reeds. But then she listened with the other part of her — the deep place, the place where the songs lived — and she heard it. Faintly, far away, but growing closer. A hum. Low and steady and ancient. The hum of water. The hum of a song that had never stopped singing.
+
+She closed her eyes. The hum grew louder. It filled her chest, her throat, her head. It was the same hum she had felt that first morning, the same hum that had risen in her when she had tried to sing. But now it was stronger, deeper, richer. It carried the weight of all six verses and something else — something new, something that was not yet words but was becoming words, forming itself in the dark, rising like water from the earth.
+
+She opened her mouth. She did not decide to open it. It opened on its own, the way a flower opens, and the seventh verse came out.
+
+It was not a verse at all. Not in the way the other six were verses — discrete, separate, each with its own shape and sound. This was something larger, something that held all the other verses inside it the way the lake held the sky. It was a sound that was also a feeling, a feeling that was also a memory, a memory that was also a promise. It poured out of her, and she could not stop it, and she did not want to stop it, and it went on and on, filling the air above the lake, spreading across the water like the ripples from a stone, reaching the far shore and the sky beyond and the place where the sky ends and something else begins.
+
+When it was finished, she was crying. She did not know when she had started. The tears ran down her face and fell into the earth, and the earth drank them, and the lake glittered in the sun, and Naava sat beside her, silent, still, her face turned toward the water.
+
+They sat for a long time. The sun climbed. The heat pressed down. The lake shimmered and breathed.
+
+Then Naava reached over and took Nankya's hand. Her grip was strong, her fingers rough and warm.
+
+"Now you have it," she said. "All seven. Now you are the singer."
+
+Nankya looked at her grandmother. "What do I do with it?"
+
+Naava squeezed her hand. "You live with it," she said. "You carry it. You sing it when the time is right, and you keep it silent when the time is not. You pass it on, when the time comes, to someone who will listen. That is all. That is everything."
+
+Nankya looked out at the lake. The water was still. The sky was wide. Somewhere in the distance, a fish jumped, and the sound of it — the small, bright splash — carried across the water like a note in a song.
+
+She carried seven verses now. Seven verses that the schoolbooks did not contain. Seven verses that no teacher would ever write on a blackboard. Seven verses that held the history of a people, a land, a lake that had been sung into being. They were hers, but they were not only hers. They belonged to the woman who had first sung them, and to all the women who had carried them before, and to the land itself, and to the water. They belonged to the future, too — to the person who would one day sit where Nankya was sitting and listen, and be quiet enough, and still enough, to hear.
+
+The lake hummed. The sun blazed. The savanna stretched out around them, vast and golden and alive.
+
+Nankya closed her eyes and held her grandmother's hand, and she listened.
+
 ---
 
 ## About This Book
